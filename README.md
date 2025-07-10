@@ -1,4 +1,4 @@
-Bagus, berikut **versi teks siap copy-paste atau dijadikan PDF** untuk temanmu:
+Jasa setting mikrotik : +62822-3348-3221
 
 ---
 
